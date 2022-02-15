@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @subhangmall
+- 👋 Hi, I’m @CATS
 - 👀 I’m interested in CATS
 - 🌱 I’m currently learning CATS
 - 💞️ I’m looking to collaborate on CATS
